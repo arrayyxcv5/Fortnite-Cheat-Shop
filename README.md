@@ -4,4 +4,4 @@ https://sellix.io/astralcheats
 
 https://discord.gg/cheats
 
-use code "summerlol" for 15% off 1-15 skinned accounts
+Full Access and Accounts for cheating Restocked, cheap af
